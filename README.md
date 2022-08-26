@@ -1,4 +1,4 @@
-# Sobre Mim #
+*Sobre Mim*
 - Professora da Rede Estadual de Ensino do Paraná 
 - Professora da disciplina  de Língua Portuguesa e Língua Espanhola 
 - Formada pela Universidade Estadual do Paraná UNIPAR 
